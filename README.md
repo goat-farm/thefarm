@@ -1,18 +1,21 @@
 # Howdy there partner! Welcome to the GOAT FARM
-...
 ## TLDR: super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE B3@R or message !K8 on signal.  {Name dropping is recommended for faster entry to the fun clubs (srry bout it but you will get in as soon as possible so it's fine)}.
 ...
+
 Are you tired of your bleeding heart getting all over your $20 vegan iced oat milk lavender latte? 
 Do you want to punch everyone who tells you your work pants are dirty & your shirt is on "backward"?
 Are you too busy getting f*ked by ______ & ______ to do anything with your life?
 Do you want to retire at 36? Or, like ASAP?
 ...
+
 Do you just want to find people who get you? Drop a note on RISING STARS
 ...
+
 ## Rising Stars is THE place to find your friends (but not in that weird tracking/Big Brother way). 
 Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
 RULEZ: keep it simple, you silly goose! We could get started with nouns & adjectives (you know... people, places, things, and sprinkle in a little love). And just to be safe let us keep it respectful and cover up our important bits, shall we? This place is all about trust but you never know when a shitstorm might hit the farm (because there's a lot of pig shit & goat turds here, sorry it's a rental).  
 ...
+
 Your intro post could look something like this:
 
 
@@ -29,7 +32,7 @@ My bark is worse than my bite and sometimes I just get a little too excited when
 
 Sending peace & love into the void,
 
-me bitch {it's !k8, this is my post for now to help but help me write a better one please?}
+me, bitch!! {it's !k8 and dw you're not my bitch -- this is my intro post, for now, to help out but pls help me write a better one?}
 
 
 NOT FOLLOWING ANY OF THIS? IS SOMETHING BROKEN? REACH OUT TO A CARE BEAR OR CONTACT !K8 on signal. 

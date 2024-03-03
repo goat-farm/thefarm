@@ -1,6 +1,6 @@
 Howdy & welcome to the goat farm! 
 
-TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. Name dropping recommended for faster entry (srry bout it)
+TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE BARE or message !k8 on signal. Name dropping recommended for faster entry (srry bout it).
 
 
 Rising Stars is THE place to find your friends. Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
@@ -22,16 +22,18 @@ My bark is worse than my bite and sometimes I just get a little too excited when
 
 Sending peace & love into the void,
 
-!8
+me bitch {it's !k8, this is my post for now}
 
-
-DOES THIS PROMPT SUCK? IT'S REALLY BORING AND YOU COULD SOUND LIKE A dorky dad IF YOU'RE NOT CAREFUL.
-DONT WORRY WE LOVE OUR DADDIES!! TURN THAT DORKASAURUS REX INTO A DINO-MITE INTRO BY ADDING YOUR SECRET SAUCE.
-MAKE IT A POEM, OR A SONG, OR JUST MAKE THE BEST PROFILE OF ALL TIME AND WE'LL GET THE VIBE.
 
 NOT FOLLOWING ANY OF THIS? REACH OUT TO A CARE BEAR OR CONTACT !8 on signal. 
 
-DEEP BREATHS. YOU GOT THIS!!! WE DON'T CARE WHO YOU ARE, WE ALREADY KNOW YOU'RE AWESOME BECAUSE YOU'RE HERE
-JUST TAKE IT SLOW, AND DON'T WORRY YOU CAN CHANGE IT WHENEVER YOU WANT (BC DUH).
+does this prompt suck? it's really boring and you could sound like a dorky dad if you're not careful.
+dont worry we love our daddies!! turn that dorkasaurus rex into a dino-mite intro by adding your secret sauce.
+make it a poem, or a song, or just make the best profile of all time and we'll get the vibe.
 
-TIRED OF THE SAPPY BULLSHIT? JUST POST WHAT PISSES YOU OFF ABOUT THE AMERICAN DREAM AND WE WILL GET ALONG JUST FINE MOTHERFUCKER
+
+deep breaths. you got this!!! we don't care who you are, we already know you're awesome because you're here
+just take it slow, and don't worry you can change it whenever you want (bc duh).
+
+TIRED OF THE SAPPY BULLSHIT? DO YOU NEED A RAGE ROOM OR A NAP? we've got both, plus koolaid and cookies #duh
+just post what pisses you off about the american dream and we will get along just fine motherfucker

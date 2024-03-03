@@ -15,7 +15,7 @@ I love to walk to my local Trader Joes or Fresh Thyme and ride my bike to Bde Ma
 My favorite place for coffee is Ceres and beer just tastes better at Wooden Ship Brewing.
 I saw a tik tok from spoot
 
-I work a corporate job and my hours are flexible. 
+I work a corporate job and my hours are flexible. I'm an engineer and I work in CPG. Right now my dream job is building this platform and creating a more inclusive internet language. 
 If you see me -- please say hi!!! I love everything and dare you to find something I hate more than Columbus & Ronald Reagan's Space Lazers (GTS). 
 My bark is worse than my bite and sometimes I just get a little too excited when I've got a fun idea or I meet new people :)
 

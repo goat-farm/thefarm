@@ -1,6 +1,6 @@
 Howdy & welcome to the goat farm! 
 
-TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE BARE or message !k8 on signal. Name dropping recommended for faster entry (srry bout it).
+TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE BARE or message !K8 on signal. Name dropping recommended for faster entry (srry bout it).
 
 
 Rising Stars is THE place to find your friends. Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
@@ -25,7 +25,7 @@ Sending peace & love into the void,
 me bitch {it's !k8, this is my post for now}
 
 
-NOT FOLLOWING ANY OF THIS? REACH OUT TO A CARE BEAR OR CONTACT !8 on signal. 
+NOT FOLLOWING ANY OF THIS? IS SOMETHING BROKEN? REACH OUT TO A CARE BEAR OR CONTACT !K8 on signal. 
 
 does this prompt suck? it's really boring and you could sound like a dorky dad if you're not careful.
 dont worry we love our daddies!! turn that dorkasaurus rex into a dino-mite intro by adding your secret sauce.

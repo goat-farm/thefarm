@@ -1,10 +1,10 @@
-Howdy & welcome to the goat farm! 
+# Howdy there partner! Welcome to the GOAT FARM
 
-TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE BARE or message !K8 on signal. Name dropping recommended for faster entry (srry bout it).
+## TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. If you have questions, find a CARE BARE or message !K8 on signal. Name dropping recommended for faster entry (srry bout it).
 
 
 Rising Stars is THE place to find your friends. Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
-RULEZ: keep it simple, you silly goose! We could get started with nouns & adjectives (you know... people, places, things, and sprinkle in a little love).
+RULEZ: keep it simple, you silly goose! We could get started with nouns & adjectives (you know... people, places, things, and sprinkle in a little love). And just to be safe lets keep it respectful and cover up our important bits, shall we? This place is all about trust but you never know when a shitstorm might hit the farm (because there's a lot of pig shit & goat turds).  
 
 It could look something like this:
 

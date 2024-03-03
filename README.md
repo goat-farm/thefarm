@@ -1,6 +1,8 @@
-#Howdy & welcome to the goat farm! 
+Howdy & welcome to the goat farm! 
 
-Super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. 
+TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. 
+
+
 Rising Stars is THE place to find your friends. Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
 RULEZ: keep it simple, you silly goose! let's start with nouns & adjectives (you know... people, places, things, and sprinkle in a little love).
 

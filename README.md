@@ -1,10 +1,10 @@
 Howdy & welcome to the goat farm! 
 
-TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. 
+TLDR -- super happy you found this weird little place. Please drop an intro on the Rising Stars page and check out our Barnyard Rules. Name dropping recommended for faster entry (srry bout it)
 
 
 Rising Stars is THE place to find your friends. Think of this post as a way to raise up that freak flag, watch it fly, and get inspired by everyone in the herd. 
-RULEZ: keep it simple, you silly goose! let's start with nouns & adjectives (you know... people, places, things, and sprinkle in a little love).
+RULEZ: keep it simple, you silly goose! We could get started with nouns & adjectives (you know... people, places, things, and sprinkle in a little love).
 
 It could look something like this:
 
@@ -13,6 +13,7 @@ What is GOOD everyone, I'm !8 (she/her) and I am just starting my small business
 
 I love to walk to my local Trader Joes or Fresh Thyme and ride my bike to Bde Maka Ska when the weather's nice. 
 My favorite place for coffee is Ceres and beer just tastes better at Wooden Ship Brewing.
+I saw a tik tok from spoot
 
 I work a corporate job and my hours are flexible. 
 If you see me -- please say hi!!! I love everything and dare you to find something I hate more than Columbus & Ronald Reagan's Space Lazers (GTS). 
@@ -32,3 +33,5 @@ NOT FOLLOWING ANY OF THIS? REACH OUT TO A CARE BEAR OR CONTACT !8 on signal.
 
 DEEP BREATHS. YOU GOT THIS!!! WE DON'T CARE WHO YOU ARE, WE ALREADY KNOW YOU'RE AWESOME BECAUSE YOU'RE HERE
 JUST TAKE IT SLOW, AND DON'T WORRY YOU CAN CHANGE IT WHENEVER YOU WANT (BC DUH).
+
+TIRED OF THE SAPPY BULLSHIT? JUST POST WHAT PISSES YOU OFF ABOUT THE AMERICAN DREAM AND WE WILL GET ALONG JUST FINE MOTHERFUCKER
